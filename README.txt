@@ -1,1 +1,0 @@
-This is a fan website for the show Better Off Tedd.
